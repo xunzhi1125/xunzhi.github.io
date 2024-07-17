@@ -1,0 +1,1 @@
+Now I am waiting for my admission to university. But I can't help saying that I was bored during the long holiday. So, I made a self-page to record my life. I will probably upload some interesting photos or something I write about nowadays. The aim of the action is to grasp my adolescence.
